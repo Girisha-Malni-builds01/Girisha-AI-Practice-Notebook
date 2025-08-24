@@ -1,1 +1,1 @@
-# Girisha-AI-Practice-Notebook
+# Girisha's-AI-Practice-Notebook
